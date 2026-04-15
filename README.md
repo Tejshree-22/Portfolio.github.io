@@ -1,4 +1,3 @@
-# 👩‍💻 Tejshree Bakore — Software Test Engineer
 
 📍 Bellevue, WA  
 📧 TejshreeBakore@gmail.com  
